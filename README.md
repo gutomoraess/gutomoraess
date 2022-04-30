@@ -1,7 +1,6 @@
 ## Bem vindo ao meu perfil! 😉
 
 - 📚 Estudante de Análise e Desenvolvimento de Sistemas - 3º Semestre
-- 
 
 
 
